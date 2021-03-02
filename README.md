@@ -1,0 +1,2 @@
+# acquaintanceWithGit
+Хе*рня несусветная 
